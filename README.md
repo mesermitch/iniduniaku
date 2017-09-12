@@ -1,0 +1,2 @@
+# iniduniaku
+Aku dan duniaku
